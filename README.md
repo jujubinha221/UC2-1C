@@ -14,5 +14,7 @@
 Atividade 1: Trello 
 - [Grupo](link)
 
+- (atividade - Emprego dos sonhos)(link aqui)(https://docs.google.com/document/d/1kjoU6QZH4fGR4YmHMZRAoRaHU5bQq228hS2hba9Br_Y/edit?usp=sharing)
+
 
 
